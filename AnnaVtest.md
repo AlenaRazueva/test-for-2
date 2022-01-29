@@ -1,0 +1,8 @@
+One morning, as Gregor Samsa was waking up from anxious dreams, he discovered that in bed he had been changed into a monstrous vermin. 
+He lay on his armour-hard back and saw, as he lifted his head up a little, his brown, arched abdomen divided up into rigid bow-like sections. 
+From this height the blanket, just about ready to slide off completely, could hardly stay in place. 
+His numerous legs, pitifully thin in comparis- on to the rest of his circumference, flickered helplessly before his eyes. 
+"What's happened to me?" he thought. It was no dream. His room, a proper room for a human being, only somewhat too small, 
+lay quietly between the four well-known walls. Above the table, on which an un- packed collection of sample cloth goods was spread out — 
+Samsa was a travelling salesman—hung the picture which he had cut out of an illus- trated magazine a little while ago and set in a pretty gilt frame. 
+It was a picture of a woman with a fur hat and a fur boa. She sat erect there, lift- ing up in
